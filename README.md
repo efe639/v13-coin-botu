@@ -14,8 +14,8 @@ Güzel Sayıda Star ve Fork Gelirse Paylaşırım
 ![image](https://media.discordapp.net/attachments/949237124119543859/978610368769298452/Screenshot_2022-05-24-13-47-40-25_572064f74bd5f9fa804b05334aa4f912.jpg)
 # Yetkili Stat
 ![image](https://media.discordapp.net/attachments/949237124119543859/978610369180336128/Screenshot_2022-05-24-13-47-03-60_572064f74bd5f9fa804b05334aa4f912.jpg)
-# Erkek kayıt
+# Kız kayıt
 ![image](https://media.discordapp.net/attachments/949237124119543859/978610711150358538/Screenshot_2022-05-24-13-49-20-39_572064f74bd5f9fa804b05334aa4f912.jpg)
-# Kız Kayıt
+# Erkek Kayıt
 ![image](https://media.discordapp.net/attachments/949237124119543859/978610711406215168/Screenshot_2022-05-24-13-48-51-79_572064f74bd5f9fa804b05334aa4f912.jpg)
 
